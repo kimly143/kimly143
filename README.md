@@ -8,4 +8,4 @@ Here is what I'm working on!
 - 💬 Ask me about anything.
 - 📫 How to reach me: email me at kimlybuck@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: Jackfruit is the best fruit ever!
+- ⚡ Fun fact: I smile a lot 😄
