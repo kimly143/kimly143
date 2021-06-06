@@ -7,5 +7,6 @@ Here is what I'm working on!
 - 🤔 I’m looking for help with better communication
 - 💬 Ask me about anything.
 - 📫 How to reach me: email me at kimlybuck@gmail.com
+- 🖥 Personal website: https://kimbuck.dev/
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I smile a lot 😄
